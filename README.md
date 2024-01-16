@@ -1,7 +1,6 @@
 wdq1ddwa
 cxczfsdfsd
-asdadssafdsdsad
-SQdcdfsd
+asdadssafd
 dgdsg
 dffsfsa
 dfgdgdg
