@@ -5,6 +5,3 @@ dgdsg
 dffsfsa
 dfgdgdg
 fgzrdgefw
-trtetevdsfsdz
-ddadsadsaf
-vvs
