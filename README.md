@@ -4,7 +4,5 @@ asdadssafd
 dgdsg
 dffsfsa
 dfgd
-j,jkkvgjggk
-ghhhjfhdrg
-hdfhytry
+j
 jgxhhxhxdhdxf
